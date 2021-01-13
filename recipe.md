@@ -7,7 +7,7 @@ MAKING THE CUP CAKE BATTER :-
      3.mix it well
      4.now in the bowl put 1/2 cup of cocoa powder
      5.put 1and3/4 cup flour
-     6.put 1 teaspoon baking soda
+     6.put 1 teaspoon baking soda 
      7.then put 1 teaspoon baking powder
      8.1/2 teaspoon salt
      9.now 2 teaspoons vanilla extract 
